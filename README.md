@@ -1,5 +1,5 @@
-# 2023-Autumn
-* Gamecore 2023年招新考核  
+# 2024-Autumn
+* Gamecore 2024年招新考核  
 ***   
 ![独角喵](https://i.postimg.cc/ncLZH4kb/QQ-20221102090610.jpg)     
 ***   
